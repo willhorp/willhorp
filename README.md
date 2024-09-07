@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @willhorp
-- 👀 I’m interested in building projects on robotics and machines 
+- 👀 I’m interested in building projects on robotics and machines, and AI
 - 🌱 I’m currently learning python language
 - 💞️ I’m looking to collaborate on projects
 - 📫 yoou can reachme via whatsapp(+2348102808791, gmail(oladapoopeyemi2@gmail.com) or direct message on this platform, thanks.
